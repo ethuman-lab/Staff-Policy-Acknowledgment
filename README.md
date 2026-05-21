@@ -122,6 +122,8 @@ To replicate this system at any property or organization:
 
 **Evin Thuman**  
 Operations Supervisor | Caesars Entertainment  
-28 years regulated gaming industry experience  
+29 years regulated gaming industry experience  
 ISC2 Certified in Cybersecurity (CC)  
 BS Business Management — University of Phoenix, Summa Cum Laude (GPA 3.97)
+[LinkedIn] (https??www.linkedin.com/in/evin-thuman-5a3409a1 
+
